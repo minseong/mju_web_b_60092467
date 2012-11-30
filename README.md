@@ -1,4 +1,6 @@
 mju_web_b_60092467
 ==================
-8¡∂ 
-±ËπŒº∫ √÷¡ÿªÛ «„∏∏¿Á 
+
+teamnumber 8
+
+kimminseong humanjai chejunsang 
